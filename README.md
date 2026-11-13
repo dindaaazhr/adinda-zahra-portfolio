@@ -1,4 +1,4 @@
-# Adinda Fatimah Az-Zahra — Data Analyst Portfolio
+# Adinda Fatimah Az-Zahra | Data Analyst Portfolio
 
 **Where data comes into bloom.**
 
